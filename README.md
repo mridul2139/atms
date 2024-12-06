@@ -108,4 +108,4 @@ Special thanks to:
 
 ---
 
-For any inquiries, feel free to contact **[your email]**.
+For any inquiries, feel free to contact **mastermridul2005@gmail.com**.
